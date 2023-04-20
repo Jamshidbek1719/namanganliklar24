@@ -1,2 +1,2 @@
-# namanganliklar24
-namanganliklar24
+# Akademnashr
+Akademnashr
